@@ -1,2 +1,2 @@
 Monday mornings are best!
-But are they???
+But are they?
